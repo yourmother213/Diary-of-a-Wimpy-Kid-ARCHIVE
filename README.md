@@ -7,7 +7,7 @@ List of books that look weird and might not be easily readable: Big Shot, and Wr
 
 Also I got some mirrors for them in case it doesn't work here
 
-Dropbox: https://www.dropbox.com/sh/j7rlld255jl7j15/AAAe8nDsem_UXUvIy08e8UUna?d$
+Dropbox: https://www.dropbox.com/sh/j7rlld255jl7j15/AAAe8nDsem_UXUvIy08e8UUna?dl=0
 
 Google Drive: https://drive.google.com/drive/u/0/folders/0AErP3GB9FMRpUk9PVA
 
