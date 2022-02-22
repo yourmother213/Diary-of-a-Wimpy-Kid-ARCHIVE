@@ -3,7 +3,7 @@ Hello! Welcome to my archive for the DOAWK Series. This is just to serve as a ma
 
 Disclaimer: Some books miiight look weird because its the Kindle Versions. Ill try to find better quality versions of them.
 
-List of books that look weird and might not be easily readable: Big Shot, and Wrecking ball
+List of books that look weird and might not be easily readable: Wrecking ball
 
 Mirrors to download
 
